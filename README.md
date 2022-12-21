@@ -1,1 +1,1 @@
-# skillfactory-moduleB7-Shpakov
+# skillfactory-moduleB7-Sea_battleships
